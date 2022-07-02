@@ -1,8 +1,9 @@
-**Alexander bochkarev**  
+! [i](free-icon-overtime-7931473.png)
+# Alexander bochkarev  
 # Contact information  
-* Phone +79339925973
-* E-mail:sasha19980722@gmail.com 
-* GitHub [jinkkl](https://github.com/jinkkl)
+* Phone: +79339925973
+* E-mail: sasha19980722@gmail.com 
+* GitHub: [jinkkl](https://github.com/jinkkl)
 # About Myself
 I want to become a programmer and do it for a long time.
 # skills
