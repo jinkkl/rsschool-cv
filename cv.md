@@ -1,5 +1,5 @@
-! [i](free-icon-overtime-7931473.png)
-# Alexander bochkarev  
+![](https://avavatar.ru/images/avatars/8/avatar_C1KzxIF9tarGCJef.jpg)
+# Alexander Bochkarev  
 # Contact information  
 * Phone: +79339925973
 * E-mail: sasha19980722@gmail.com 
