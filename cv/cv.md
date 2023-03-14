@@ -1,3 +1,5 @@
+![Лого](https://cspromogame.ru//storage/upload_images/avatars/5268.jpg)
+
 **Alexander Bochkarev**
 ====================
 
